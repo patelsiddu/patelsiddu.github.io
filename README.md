@@ -1,1 +1,0 @@
-# patelsiddu.github.io
